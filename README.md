@@ -1,2 +1,9 @@
 # whoami
 Who am I?
+=========================================
+Knowledge nourishes me...
+Challenges move me...
+Nature amazes me...
+Existence and reality shine in my eyes!
+=========================================
+Carlos - 2023 - December - 11
